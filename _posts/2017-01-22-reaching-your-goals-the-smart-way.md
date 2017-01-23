@@ -2,7 +2,7 @@
 title: Reaching your goals the SMART way
 layout: post
 date: '2017-01-22 14:13:34 -0500'
-categories: jekyll update
+categories: motivation
 ---
 
 It’s the start of a brand new year and it’s a natural time for people to take a look at their lives and determine the areas that need improved. According to the New Years Resolution Statistics for 2017 (http://www.statisticbrain.com/new-years-resolution-statistics/), “Lose Weight/Healthier Eating” is at the top of the list by almost 10%. 
