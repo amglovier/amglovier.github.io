@@ -13,15 +13,25 @@ Perhaps you are one of the many who resolve to get back into shape every time th
 
 By using this method you can take the vague idea of “Lose Weight/Get in Shape” and transform it into reality. Let’s take a closer examination at what each of those attributes look like.
 
-Specific: The goals must specifically state what is to be accomplished. They must be easily understood and should not be ambiguous or subject to interpretation. For example, rather than stating you would like to get back in shape, a more specific goal would look something like this: I will make it to the gym 3-4 days a week and be able to run a mile under 15 minutes by the end of the month.
+## Specific
 
-Measurable: The goals must be measurable so that there is no doubt about whether you achieved them. Measurable goals also allow you to evaluate your progress and builds confidence in the fact that you can do it. When a person knows they need to lose a good 50 pounds to be healthy and uses that goal as their primary motivation, they will most certainly get discouraged before that goal is accomplished. It is far better to break that goal down into smaller, measurable goals such as “lose 1-1.5 pounds per week for a total of 5-6 pounds lost by the end of the month.”
+The goals must specifically state what is to be accomplished. They must be easily understood and should not be ambiguous or subject to interpretation. For example, rather than stating you would like to get back in shape, a more specific goal would look something like this: I will make it to the gym 3-4 days a week and be able to run a mile under 15 minutes by the end of the month.
 
-Attainable: The goals must be attainable - not too difficult or too easy. Easy goals do not motivate, and overly difficult ones may frustrate you and lead to a perception of failure, which is the biggest reason people give up on their goals. So if you have lived your life eating out more than you are cooking at home and haven’t exercised regularly in years, don’t set your goal to have zero cheats and get to the gym 5 days a week. Instead, start a little slower by committing to an hour at the gym 3 times a week and cutting out soda and fried food.
+## Measurable
 
-Relevant: The goals must be relevant or pertinent to your particular interests, needs and abilities. For example, if you are preparing for your first 5K race, doing yoga twice a week - although great for flexibility training - will not help you build the cardiovascular endurance needed to run those 3.1 miles. 
+The goals must be measurable so that there is no doubt about whether you achieved them. Measurable goals also allow you to evaluate your progress and builds confidence in the fact that you can do it. When a person knows they need to lose a good 50 pounds to be healthy and uses that goal as their primary motivation, they will most certainly get discouraged before that goal is accomplished. It is far better to break that goal down into smaller, measurable goals such as “lose 1-1.5 pounds per week for a total of 5-6 pounds lost by the end of the month.”
 
-Time-Bound: The goals must be time-bound by specific deadlines for completion. Timelines should be both short-term and long-term. This is huge. When you need to lose a significant amount of weight, you have to focus on setting short-term goals (think weekly and monthly goals) which will keep you on the right path toward accomplishing the big goal. 
+## Attainable
+
+The goals must be attainable - not too difficult or too easy. Easy goals do not motivate, and overly difficult ones may frustrate you and lead to a perception of failure, which is the biggest reason people give up on their goals. So if you have lived your life eating out more than you are cooking at home and haven’t exercised regularly in years, don’t set your goal to have zero cheats and get to the gym 5 days a week. Instead, start a little slower by committing to an hour at the gym 3 times a week and cutting out soda and fried food.
+
+## Relevant
+
+The goals must be relevant or pertinent to your particular interests, needs and abilities. For example, if you are preparing for your first 5K race, doing yoga twice a week - although great for flexibility training - will not help you build the cardiovascular endurance needed to run those 3.1 miles. 
+
+## Time-Bound
+
+The goals must be time-bound by specific deadlines for completion. Timelines should be both short-term and long-term. This is huge. When you need to lose a significant amount of weight, you have to focus on setting short-term goals (think weekly and monthly goals) which will keep you on the right path toward accomplishing the big goal. 
 
 I would love to hear if you have any fitness or weight lose goals for 2017 in the comment section below. If you need help figuring out where to start or how to transform those vague weight lose goals into SMART goals, I’d love to be a resource for you. 
 
